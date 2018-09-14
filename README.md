@@ -1,1 +1,1 @@
-# PI3 Igor Nodari, Matheus, Amanda, Vinicius e Guilherme.
+# PI3 Igor Nodari, Matheus, Lucas e Guilherme.
